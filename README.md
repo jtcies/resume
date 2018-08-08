@@ -27,8 +27,8 @@
 
 ## EDUCATION
 
-MSEd, Education Policy | University of Pennsylvania | 2012 - 2014
-BS, Elementary and Special Education | Saint Joseph’s University | 2003 - 2007
+- MSEd, Education Policy | University of Pennsylvania | 2012 - 2014
+- BS, Elementary and Special Education | Saint Joseph’s University | 2003 - 2007
 
 ## SELECTED PRESENTATIONS AND PUBLICATIONS
 
