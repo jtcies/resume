@@ -1,6 +1,6 @@
 # Resume - Joe Ciesielski
 
-[LinkedIn][www.linkedin.com/in/joseph-ciesielski]
+[LinkedIn](www.linkedin.com/in/joseph-ciesielski)
 
 ## WORK EXPERIENCE
 
